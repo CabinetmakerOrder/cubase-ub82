@@ -1,4 +1,4 @@
-# 
+# Nouveau DaVinci Resolve pour PC plugins est le meilleur DaVinci Resolve pour PC plugins avec remappage temporel et support des plugins. Sécurisé, fiable et optimisé pour des
 
 
 
